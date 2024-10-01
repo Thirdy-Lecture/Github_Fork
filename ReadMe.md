@@ -1,1 +1,1 @@
-Sandara Park Tababan
+Sandara Tababan
