@@ -3,7 +3,7 @@
 ### Justine Jerald Rosel
 ### Shamelle Calcetas
 
-### ADD YOUR NAME HERE
+### Shamel Jane Francisco
 ##$ MYNAME
 
 
