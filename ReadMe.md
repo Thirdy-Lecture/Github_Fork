@@ -2,8 +2,8 @@
 ### Sandara Park Tababan
 ### Justine Jerald Rosel
 ### Shamelle Calcetas
+### Christian Toribio
 
-### ADD YOUR NAME HERE
 ##$ MYNAME
 
 
