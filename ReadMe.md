@@ -11,3 +11,7 @@
 $$$ MR JACOB
 
 ### John Rodel Dolinog
+### Hobayan, Alesandro B.
+### -Jorim
+### Hannah Gabrielle Caling
+
