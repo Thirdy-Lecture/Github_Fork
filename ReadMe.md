@@ -1,9 +1,6 @@
 ### jane velarde bsit-3a
-### Sandara Park Tababan
 ### Justine Jerald Rosel
 ### Shamelle Calcetas
+### Sandara Tababan
+## Princess Rodiel
 ### Christian Toribio
-
-##$ MYNAME
-
-
