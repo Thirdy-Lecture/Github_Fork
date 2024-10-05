@@ -1,7 +1,9 @@
+
 ### jane velarde bsit-3a
+### Sandara Park Tababan
 ### Justine Jerald Rosel
 ### Shamelle Calcetas
-### Sandara Tababan
 
 ### ADD YOUR NAME HERE
 ## Princess Rodiel
+Jinelyn Mangubat
