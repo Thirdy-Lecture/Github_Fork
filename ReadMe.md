@@ -6,5 +6,11 @@
 ### ADD YOUR NAME HERE
 ## Princess Rodiel
 ### Shamel Jane Francisco
+### Christian Toribio
+
 $$$ MR JACOB
+
 ### Hobayan, Alesandro B.
+### -Jorim
+### Hannah Gabrielle Caling
+
