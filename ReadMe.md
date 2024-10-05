@@ -3,4 +3,6 @@
 ### Shamelle Calcetas
 ### Sandara Tababan
 ## Princess Rodiel
+
+### Shamel Jane Francisco
 ### Christian Toribio
