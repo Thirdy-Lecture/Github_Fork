@@ -3,6 +3,10 @@
 ### Shamelle Calcetas
 ### Sandara Tababan
 ## Princess Rodiel
-
 ### Shamel Jane Francisco
 ### Christian Toribio
+### John Rodel Dolinog
+### Hobayan, Alesandro B.
+### -Jorim
+### Hannah Gabrielle Caling
+### brandon
