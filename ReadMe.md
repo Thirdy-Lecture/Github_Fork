@@ -1,3 +1,6 @@
+<<<<<<< HEAD
+Carol Engo
+=======
 ### jane velarde bsit-3a
 ### Justine Jerald Rosel
 ### Shamelle Calcetas
@@ -16,3 +19,4 @@ $$$ MR JACOB
 ### Hannah Gabrielle Caling
 ### brandon
 
+>>>>>>> c96833b4c1e1d6d6189156250ca127dabc2d2c8c
